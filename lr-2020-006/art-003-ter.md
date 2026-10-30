@@ -1,0 +1,11 @@
+Art. 3 ter
+(Borse di studio integrative per la frequenza del corso di formazione specifica in medicina
+generale)
+1. La Regione finanzia borse di studio integrative in favore dei medici iscritti al corso di formazione specifica in medicina generale organizzato dalla Regione autonoma della Sardegna.
+2. La misura della borsa di studio integrativa è pari alla differenza tra l'importo previsto per i contratti di formazione specialistica aggiuntivi regionali di cui all'articolo 3 e l'importo stabilito dall'articolo 17 del decreto del Ministro della salute del 7 marzo 2006.
+3. Le borse di studio integrative sono assegnate ai medici in possesso dei requisiti di cui all'articolo 4, nei limiti delle risorse finanziarie disponibili, secondo l'ordine della graduatoria concorsuale di cui all'articolo 9 del decreto del Ministro della salute del 7 marzo 2006.
+Art. 3-quater
+(Indennità di disponibilità territoriale)
+1. Al fine di garantire l'efficienza e la sostenibilità del SSR e incentivare il radicamento e la permanenza dei professionisti di area sanitaria non medica formati in Sardegna, fronteggiando la carenza che si registra nelle strutture e nei servizi del SSR, la Regione riconosce a coloro che risultino regolarmente iscritti al primo anno di corso, a decorrere dall'anno accademico 2025/2026, in possesso dei requisiti di cui all'articolo 4 comma 1, previa espressa dichiarazione di adesione, un'indennità di disponibilità territoriale, quantificata in euro 20.227, per i corsisti iscritti ai primi due anni di specializzazione ed euro 21.227, per i corsisti iscritti agli anni successivi al secondo.
+2. L'indennità di cui al comma 1 è erogata mensilmente dalle Università per l'intera durata del corso e costituisce un incentivo economico per l'impegno formale dello specializzando a partecipare ai concorsi indetti dalle aziende del SSR, ad accettare incarichi e a prestare servizio tramite le forme contrattuali normativamente previste, nella branca di afferenza, per un periodo di 36 mesi, decorrenti dalla data di conseguimento della specializzazione.
+3. Le modalità di erogazione dell'indennità, le condizioni per la sua fruizione e la disciplina generale dell'istituto sono stabilite dalla Giunta regionale con deliberazione adottata su proposta dell'Assessore dell'igiene e sanità e dell'assistenza sociale.
