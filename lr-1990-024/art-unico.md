@@ -1,0 +1,4 @@
+Articolo unico
+1. Ai sensi e per gli effetti dell'articolo 27, ultimo comma, della legge regionale 5 maggio 1983, n. 11, è convalidato il decreto del Presidente della Giunta regionale 12 ottobre 1989, n. 140, concernente il prelevamento della somma di L. 350.000.000 dal fondo di riserva per spese impreviste - capitolo 03010 - dello stato di previsione della spesa dell'Assessorato della programmazione, bilancio ed assetto del territorio, a favore del capitolo 04040 concernente "Spese per il funzionamento degli uffici periferici dell'Amministrazione regionale" dello stato di previsione della spesa dell'Assessorato degli enti locali, finanze ed urbanistica del bilancio regionale per l'anno finanziario 1989.
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
