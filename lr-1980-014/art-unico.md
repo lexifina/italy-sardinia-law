@@ -1,0 +1,4 @@
+Articolo Unico
+Ai sensi e per gli effetti dell'articolo 9 della legge 5 agosto 1978, n. 468, e dell'articolo 3 della legge regionale 10 maggio 1979, n. 38, nonché dell'articolo 9 della legge regionale 23 aprile 1979, n. 20, è convalidato il decreto del Presidente della Giunta regionale n. 98 del 4 settembre 1979 concernente il prelevamento della somma di lire 50.000.000 dal fondo di riserva per spese impreviste (cap. 03010) a favore del capitolo 02057 dello stato di previsione della spesa dell'Assessorato degli affari generali, personale e riforma della Regione del bilancio regionale 1979: "Indennità e rimborsi di spese di trasporto al personale addetto all'attività di formazione professionale per missioni in territorio nazionale (L.R. 17 agosto 1978, n. 51)".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
