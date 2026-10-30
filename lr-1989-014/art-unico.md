@@ -1,0 +1,4 @@
+Articolo Unico
+1. Ai sensi e per gli effetti dell'articolo 27, ultimo comma della legge regionale 5 maggio 1983, n. 11, è convalidato il decreto del Presidente della Giunta regionale del 20 settembre 1981, n. 151, concernente il prelevamento della somma di lire 500.000.000 dal fondo di riserva per spese impreviste - Capitolo 03010 - dello stato di previsione della spesa dell'Assessorato della Programmazione, bilancio e assetto del territorio, a favore del Capitolo 04036- 02 recante "Spese per la custodia, la vigilanza e la sorveglianza dei beni patrimoniali della Regione" dello stato di previsione della spesa dell'Assessorato degli enti locali, finanze ed urbanistica del bilancio per l'anno finanziario 1988.
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
