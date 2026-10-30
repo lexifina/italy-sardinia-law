@@ -1,0 +1,4 @@
+Articolo unico
+1. Ai sensi e per gli effetti dell'articolo 27, ultimo comma, della legge regionale 5 maggio 1983, n. 11, è convalidato il D.P.G.R. 22 giugno 1990, n. 119, concernente il prelevamento della somma di lire 1.062.000.000 dal fondo di riserva per spese impreviste - capitolo 03010 - a favore dei Capitoli 04024 (per L. 532.000.000), 04033 (per L. 150.000.000), 04034 (per L. 50.000.000), 04037 (per L. 250.000.000) 04038 (per L. 80.000.000), relativi a spese di funzionamento degli uffici centrali e periferici dell'Amministrazione regionale - dello stato di previsione della spesa dell'Assessorato degli Enti Locali, Finanze ed Urbanistica.
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
