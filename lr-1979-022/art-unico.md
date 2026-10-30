@@ -1,0 +1,4 @@
+Articolo unico
+Ai sensi e per gli effetti dell'articolo 42 del regio decreto 18 novembre 1923, n. 2440, dell'articolo 136 del regolamento approvato con regio decreto 23 maggio 1924, n. 827, nonchè dell'articolo 9 della legge regionale 27 gennaio 1977, n. 10, è convalidato il decreto del Presidente della Giunta regionale n. 188 del 22 dicembre 1977 concernente il prelevamento della somma di lire 4.000.000 dal fondo di riserva per spese impreviste a favore del capitolo 11117 dello stato di previsione della spesa del bilancio della regione per l'anno finanziario 1977, recante: "Compensi per lavoro straordinario ai salariati dell'Amministrazione regionale (art. 8, LR 3 luglio 1970, n. 6)".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
