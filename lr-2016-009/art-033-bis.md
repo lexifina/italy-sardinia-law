@@ -1,0 +1,5 @@
+Art. 33 bis
+(Potenziamento degli interventi di politica sociale e del lavoro a favore di soggetti a rischio di
+esclusione)
+1. L'ASPAL, al fine di garantire una reale fruizione dei servizi per il lavoro e dei programmi di politica attiva del lavoro, anche in coordinamento con gli interventi di politica sociale promossi dalla normativa europea, nazionale e regionale, da parte di soggetti a rischio di esclusione, quali lavoratori stranieri, beneficiari di forme di reddito di inclusione e altre categorie di soggetti che si trovano in condizione di fragilità socio-lavorativa, nei limiti delle risorse disponibili nel suo bilancio interno in conto della missione 01 - programma 10 - titolo 1 e nei limiti delle vigenti facoltà assunzionali, è autorizzata ad assumere personale dotato di specifiche competenze per l'espletamento delle suddette attività.
+2. La Giunta regionale, con propria deliberazione, adottata secondo le modalità previste dall'articolo 34, definisce il numero e i profili professionali necessari al raggiungimento degli obiettivi di cui al comma 1. La dotazione organica dell'ASPAL è conseguentemente rideterminata ai sensi dell'articolo 11, comma 4.
