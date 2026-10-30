@@ -1,0 +1,4 @@
+Articolo unico
+Ai sensi e per gli effetti dell'articolo 27, ultimo comma, della legge regionale 5 maggio 1983, n. 11, è convalidato il decreto del Presidente della Giunta regionale 18 luglio 1984, n. 65, concernente il prelevamento della somma di lire 110.000.000, dal fondo di riserva per spesa impreviste - Capitolo 03010 - dello stato di previsione della spesa dell'Assessorato della programmazione, bilancio e assetto del territorio, a favore del Capitolo 01007 dello stato di previsione della spesa della Presidenza della Giunta, del bilancio regionale per l'anno finanziario 1984, recante: "Fondo a disposizione del Presidente della Giunta regionale per spese di rappresentanza, nonché per spese relative ad avvenimenti eccezionali e varie".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
