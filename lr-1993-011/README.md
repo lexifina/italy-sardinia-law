@@ -1,9 +1,0 @@
-# Legge regionale 9 marzo 1993, n. 11 - Proroga dell'autorizzazione all'esercizio provvisorio del bilancio della Regione, del bilancio dell'Azienda delle foreste demaniali e dei bilanci degli enti strumentali per l'anno finanziario 1993
-
-L.R. 11/1993 · 1 versions, from 2026-10-30 (latest in force: 2026-10-30) · <https://leggiregionali.regione.sardegna.it/1993-03-09/11>
-
-| Provision | File | Changes | Last changed |
-| --- | --- | ---: | --- |
-| Art. 1 | [art-001.md](art-001.md) | 0 |  |
-| Art. 2 | [art-002.md](art-002.md) | 0 |  |
-| Intestazione | [intestazione.md](intestazione.md) | 0 |  |
