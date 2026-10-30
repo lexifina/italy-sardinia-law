@@ -1,0 +1,2 @@
+Articolo unico
+1. L'Amministrazione regionale è autorizzata ad applicare i tassi di contribuzione previsti nel regolamento (CEE) n. 3699/93 del Consiglio del 21 dicembre 1993 (che deﬁnisce i criteri e le condizioni degli interventi comunitari a ﬁnalità strutturale nel settore della pesca, dell'acquacoltura e della trasformazione e commercializzazione dei relativi prodotti) per le iniziative previste dallo stesso regolamento.
