@@ -1,0 +1,2 @@
+Art. 2 bis
+Il fondo costituito ai sensi e per gli effetti della presente legge, potrà sottoscrivere azioni di nuova emissione della società LASI S.p.A., fino ad acquisire nel complesso una partecipazione non superiore al 70 per cento del capitale sociale della stessa, in modo che detta società possa effettuare interventi di recupero di impianti industriali inattivi, autonomamente e in deroga alle procedure previste per gli altri investimenti di cui alla presente legge.
