@@ -1,0 +1,5 @@
+Articolo unico
+Il terzo comma dell'articolo 73 della legge regionale 28 aprile 1978, n. 32, è così sostituito:"Le riserve di caccia consorziali e quelle sociali non potranno essere rinnovate alla scadenza del decreto di concessione e saranno automaticamente trasformate in zone di ripopolamento e cattura, in attesa del nuovo riassetto che verrà dato dal Comitato regionale faunistico e dai Comitati comprensoriali faunistici. Tuttavia, sino al nuovo riassetto, l'Assessore regionale competente potrà , sentito il parere del Comitato regionale faunistico e del Comitato comprensoriale faunistico competente per territorio, con singoli provvedimenti, affidare, per periodi di tempo non superiori all'anno, in concessione autogestita per l'esercizio della caccia territori ricadenti in tali riserve.
+I provvedimenti di cui al comma precedente cessano di avere efficacia ove il riassetto preveda una destinazione del territorio diversa da quella che ha determinato la concessione".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
