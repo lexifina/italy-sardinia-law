@@ -1,0 +1,4 @@
+Articolo Unico
+Ai sensi e per gli effetti dell'articolo 9 della legge 5 agosto 1978, n. 468, e dell'articolo 3 della legge regionale 10 maggio 1979, n. 38, nonché dell'articolo 9 della legge regionale 23 aprile 1979, n. 20, è convalidato il decreto del Presidente della Giunta regionale n. 91 del 7 agosto 1979 concernente il prelevamento della somma di lire 50.000.000 dal fondo di riserva per spese impreviste (cap. 03010) a favore del capitolo 01009 dello stato di previsione della spesa della Presidenza della Giunta regionale del bilancio regionale 1979: "Fondo a disposizione del Presidente della Giunta e degli Assessori per contributi e sussidi per assistenza e beneficenza".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
