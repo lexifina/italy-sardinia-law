@@ -1,0 +1,4 @@
+Articolo unico
+Nei disciplinari delle concessioni accordate a sensi della legge regionale 19 dicembre 1959, n. 20, sarà inserita una clausola che impegni i concessionari, singolarmente o riuniti in consorzio obbligatorio, a costruire ed esercire entro un termine fissato, a pena di decadenza, un impianto di raffinazione per il trattamento, nel territorio della Regione, del minerale prodotto, se la produzione annuale di idrocarburi liquidi raggiunga nell'Isola il quantitativo complessivo di due milioni di tonnellate e sempre che le riserve si dimostrino tali da assicurare l'alimentazione dell'impianto per un congruo numero di anni.
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+È fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
