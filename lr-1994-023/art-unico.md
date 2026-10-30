@@ -1,0 +1,5 @@
+Articolo unico
+1. Ai sensi e per gli effetti dell'articolo 27, ultimo comma, della legge regionale 5 maggio 1983, n. 11, è convalidato il DPGR del 7 dicembre 1993, n. 347, concernente il prelevamento della somma di lire 20.000.000 dal fondo di riserva per spese impreviste - capitolo 03010 - dello stato di previsione della spesa dell'Assessorato della programmazione, bilancio, credito e assetto del territorio, a favore del capitolo 08239 dello stato di previsione dell'Assessorato dei lavori pubblici concernente:
+"Spese derivanti dalla notifica di atti di sovralluogo ex art. 7, terzo comma, legge 2359/1865, per la formazione di stati di consistenza nei procedimenti espropriativi per causa di pubblica utilità a cura della Regione sarda e spese per la notifica e la registrazione di atti e provvedimenti amministrativi relativi alla gestione di opere di pertinenza dell'Assessorato dei lavori pubblici ai sensi della legge 7 gennaio 1977, n. 1, e art. 13, L.R. 22 gennaio 1990, n. 1".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
