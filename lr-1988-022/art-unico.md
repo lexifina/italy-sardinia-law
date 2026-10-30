@@ -1,0 +1,4 @@
+Articolo unico
+1. Ai sensi e per gli effetti dell'articolo 127, ultimo comma, della legge regionale 5 maggio 1983, n. 11, è convalidato il decreto del Presidente della Giunta regionale 4 novembre 1987, n. 126 concernente il prelevamento della somma di L.150.000.000 dal fondo di riserva per spese impreviste - cap. 03010 - dello stato di previsione della spesa dell'Assessorato regionale della programmazione, bilancio e assetto del territorio, a favore del capitolo 01007 recante "Fondo a disposizione del Presidente della Giunta regionale per spese di rappresentanza, nonchè per spese relative ad avvenimenti eccezionali e varie (art. 39, L.R. 24 febbraio 1987, n. 7)" dello stato di previsione della spesa della Presidenza della Giunta del bilancio regionale per l'anno finanziario 1987.
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
