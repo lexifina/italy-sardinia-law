@@ -1,0 +1,4 @@
+Articolo unico
+Ai sensi e per gli effetti dell'articolo 9 della legge 5 agosto 1978, n. 468, e dell'articolo 9 della legge regionale 7 maggio 1981, n. 15, è convalidato il decreto del Presidente della Giunta regionale n. 110 del 29 settembre 1981, concernente il prelevamento della somma di lire 50.000.000 dal fondo di riserva per spese impreviste (cap. 03010) a favore del capitolo 01007 dello stato di previsione della spesa della Presidenza della Giunta del bilancio della Regione per l'anno finanziario 1981, recante: "Fondo a disposizione del Presidente della Giunta regionale per spese di rappresentanza, nonchè per spese relative ad avvenimenti eccezionali e varie".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
