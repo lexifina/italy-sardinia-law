@@ -1,0 +1,4 @@
+Articolo unico
+Ai sensi e per gli effetti dell'articolo 9 della legge 5 agosto 1978, n. 468, e dell'articolo 9 della legge regionale 12 maggio 1983, n. 13, è convalidato il decreto del Presidente della Giunta regionale n. 38 del 27 maggio 1983, concernente il prelevamento della somma di lire 1.800.000.000 dal fondo di riserva per spese impreviste (cap. 03010) a favore del nuovo capitolo 02149 dello stato di previsione della spesa dell'Assessorato degli affari generali, personale e riforma della Regione del bilancio della Regione per l'anno finanziario 1983, recante: "Spese per lo svolgimento delle attività già di competenza degli enti di cui all'articolo 75 del decreto del Presidente della Repubblica 19 giugno 1979, n. 348".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
