@@ -1,0 +1,5 @@
+Art. 10 bis
+Gli Istituti di credito convenzionati sono autorizzati a concedere alle imprese artigiane di cui all'articolo 1, unitamente ai prestiti agevolati di impianti l'anticipazione dei contributi alle stesse spettanti nella misura e per le attività ammesse secondo quanto stabilito con il decreto del Presidente della Giunta regionale di cui all'articolo 4.
+Le anticipazioni di cui al comma precedente sono erogate con le stesse modalità, gli stessi tempi e gli stessi criteri di pagamento dei prestiti di impianto.
+L'anticipazione diviene contributo a fondo perduto nel momento in cui l'Istituto di credito convenzionato accerta l'avvenuta realizzazione dell'iniziativa programmata.
+In caso di accertata irregolarità o inadempienza nell'esatto impiego delle somme concesse o nel rispetto degli obblighi derivanti dal provvedimento concessivo, l'Istituto di credito convenzionato provvede, direttamente, nelle forme di legge, anche al ricupero di detti contributi

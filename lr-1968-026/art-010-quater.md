@@ -1,0 +1,3 @@
+Art. 10 quater
+Le somme anticipate a titolo di contributo dagli istituti di credito convenzionati, con aggravio provvisorio sul fondo di rotazione previsto dall'art. 10, vengono rimborsate trimestralmente agli stessi istituti, con decreto dell'Assessore competente in materia di artigianato, dietro presentazione di copia del contratto di mutuo e della dichiarazione di avvenuto utilizzo del prestito e del contributo abbinato.
+La spesa relativa graverà sul capitolo di bilancio che prevede "Contributi alle imprese artigiane per l'acquisto, la costruzione, l'ampliamento e l'ammodernamento dei locali necessari all'azienda, ivi compresa l'area occorrente, e per l'acquisto dei macchinari ed attrezzature"

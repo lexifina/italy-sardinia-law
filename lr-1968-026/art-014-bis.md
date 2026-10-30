@@ -1,0 +1,4 @@
+Art. 14 bis
+Allo scopo di alleviare il carico degli interessi passivi gravanti sui finanziamenti che vengono concessi, secondo le norme previste dalla presente legge, da Istituti o Aziende di credito con fondi propri, l'Amministrazione regionale è autorizzata a concorrere nel pagamento degli interessi in misura tale che gli interessi stessi, i diritti di commissione e le spese accessorie non gravino complessivamente sul mutuatario oltre il 3 per cento in ragione di anno.
+Il contributo di cui al precedente comma è disposto con decreto dell'Assessore competente in materia di artigianato.
+L'Assessore competente in materia di artigianato è autorizzato a stipulare con gli Istituti o Aziende di credito interessati, le convenzioni necessarie per determinare le modalità degli interventi di cui ai commi precedenti
