@@ -1,0 +1,4 @@
+Articolo unico
+1. Ai sensi e per gli effetti dell'articolo 27, ultimo comma, della legge regionale 5 maggio 1983, n. 11, è convalidato il D.P.G.R. 16 settembre 1993, n. 294, concernente il prelevamento della somma di lire 400.000.000 dal fondo di riserva per spese impreviste - capitolo 03010 - dello stato di previsione della spesa dell'Assessorato della programmazione, bilancio, credito e assetto del territorio, a favore del capitolo 05063/01 dello stato di previsione dell'Assessorato della difesa dell'ambiente concernente: "Spese per lo smaltimento di sostanze antiparassitarie non più utilizzabili ai sensi delle vigenti disposizioni".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione
