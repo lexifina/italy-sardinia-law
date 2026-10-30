@@ -1,0 +1,6 @@
+Art. 4 bis
+(Rete antiviolenza e protocolli operativi)
+1. La Regione promuove l'istituzione di una rete antiviolenza costituita da enti pubblici, istituzioni scolastiche, forze dell'ordine, autorità giudiziaria, centri antiviolenza, centri di ascolto e ogni altro soggetto che opera nel campo della tutela delle vittime di violenza e di stalking.
+2. La rete antiviolenza è sede di dialogo, di confronto e di scambio di buone pratiche tra i soggetti di cui al comma 1 in materia di prevenzione e contrasto alla violenza di genere e allo stalking e mira a garantire l'omogeneità degli interventi nel territorio regionale e il coordinamento tra le istituzioni pubbliche e private che operano nel settore.
+3. La rete è coordinata dall'Assessorato regionale dell'igiene e sanità e dell'assistenza sociale che mette a disposizione le strutture ed il personale per l'espletamento dei compiti previsti dal presente articolo.
+4. La Regione promuove la sottoscrizione di appositi protocolli operativi per la disciplina di procedure uniformi di accoglienza e presa in carico in emergenza delle vittime di violenza e di stalking prevedendo un percorso assistenziale e curativo protetto ed individualizzato e che preveda la partecipazione attiva di tutti i soggetti che partecipano alla rete.

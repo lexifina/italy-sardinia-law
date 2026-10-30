@@ -1,0 +1,7 @@
+Art. 2 bis
+(Attività di prevenzione e di informazione)
+1. La Regione promuove le finalità di cui all'articolo 2 attraverso:
+a) attività di carattere educativo-sociale, svolte mediante programmi divulgativi della cultura della legalità e del rispetto dei diritti attraverso il coinvolgimento delle istituzioni scolastiche e dei mezzi di informazione, volte alla sensibilizzazione e denuncia del fenomeno della violenza sessuale nei confronti delle donne;
+b) attività formative di educazione al rispetto dell'altro rivolte anche a docenti e genitori, finalizzate alla prevenzione di ogni forma di violenza e al superamento degli stereotipi di genere nonché all'acquisizione di capacità relazionali dirette al miglioramento dell'autostima e di apprendimento di tecniche di autodifesa per prevenire e contrastare ogni forma e grado di violenza nei confronti delle donne;
+c) attività dirette al potenziamento della sicurezza diurna e notturna di parchi, giardini e luoghi a rischio di violenza sessuale mediante sistemi di videosorveglianza, illuminazione, telesoccorso e, in generale, l'utilizzo di nuove tecnologie volte ad esercitare efficaci forme di controllo nelle aree a rischio di violenza sessuale;
+d) attività dirette alla diffusione di informazioni sul fenomeno dello stalking e a prevenirne l'insorgenza.
