@@ -1,0 +1,5 @@
+Articolo Unico
+L'Assessore regionale della Pubblica istruzione è autorizzato a distribuire, senza formalità alcuna, le opere librarie acquistate ai sensi della legge regionale 24 ottobre 1952, n. 35, oltre che alle pubbliche biblioteche della Regione, con particolare riguardo a quelle scolastiche e popolari, alle pubbliche amministrazioni, ai parlamentari nazionali, ai consiglieri regionali, provinciali e comunali, agli organi direttivi regionali e provinciali dei partiti politici e delle organizzazioni sindacali, alle associazioni culturali e alle istituzioni religiose, nonchè a persone singole.
+L'Assessore regionale della pubblica istruzione può procedere alla distribuzione delle opere di cui al comma precedente, sia dietro formale richiesta degli enti o delle persone interessate, sia dietro personale determinazione, allo scopo precipuo di far conoscere la Sardegna nella sua storia nella sua arte, nei suoi problemi e nelle sue realizzazioni.
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
