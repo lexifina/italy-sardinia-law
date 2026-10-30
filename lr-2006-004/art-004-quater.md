@@ -1,0 +1,12 @@
+Art. 4 quater
+(Modalità e termini dell'accertamento)
+1. L'ARASE provvede al recupero delle imposte dovute, ai sensi degli articoli 2, 3 e 4, mediante avviso di accertamento recante la liquidazione dell'imposta dovuta e delle relative sanzioni ed interessi al tasso legale, da notificarsi, a pena di decadenza, entro il 31 dicembre del quinto anno successivo a quello in cui avrebbe dovuto essere eseguito il pagamento per le imposte di cui agli articoli 2, 3 e 4.
+2. La notificazione dell'avviso di accertamento può essere effettuata, oltre che con le regole previste dall'articolo 60 del decreto del Presidente della Repubblica n. 600 del 1973, anche a mezzo posta mediante raccomandata con avviso di ricevimento.
+3. L'avviso di accertamento deve essere motivato in relazione ai presupposti di fatto e alle ragioni giuridiche che lo hanno determinato. Se la motivazione fa riferimento ad un altro atto non conosciuto né ricevuto dal contribuente, questo deve essere allegato all'atto che lo richiama, salvo che quest'ultimo non ne riproduca il contenuto essenziale.
+4. L'ARASE esegue l'attività di accertamento, liquidazione e riscossione delle imposte di cui agli articoli 2, 3 e 4:
+a) tramite i servizi e le procedure esistenti nell'ambito della propria struttura organizzativa;
+b) mediante stipula di apposita convenzione con l'Agenzia delle entrate con i criteri e le limitazioni previste da apposita delibera della Giunta regionale.
+5. Il contribuente destinatario dell'avviso di accertamento può, entro il termine previsto per la proposizione del ricorso, procedere alla definizione dell'atto ai sensi e per gli effetti previsti dall'articolo 15 del decreto legislativo 19 giugno 1997, n. 218, ovvero definire lo stesso per adesione, applicandosi, per quanto compatibili, le disposizioni di cui al decreto legislativo n. 218 del 1997.
+6. Le somme liquidate nell'avviso di accertamento per imposta, sanzioni ed interessi, e non versate entro il termine previsto dal comma 5 sono riscosse coattivamente mediante iscrizione a ruolo, da effettuarsi secondo le disposizioni contenute nel decreto del Presidente della Repubblica 29 settembre 1973, n. 602.
+7. La cartella di pagamento è notificata entro il 31 dicembre del secondo anno successivo alla notifica dell'avviso di accertamento di cui al comma 1.
+8. Il contribuente può chiedere all'ARASE il rimborso delle somme versate e non dovute, a pena di decadenza, entro tre anni dal giorno del pagamento dell'imposta.
