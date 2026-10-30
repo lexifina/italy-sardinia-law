@@ -1,0 +1,4 @@
+Articolo unico
+1. Ai sensi e per gli effetti dell'articolo 27, ultimo comma della legge regionale 5 maggio 1983, n. 11, è convalidato il decreto del Presidente della Giunta Regionale 17 ottobre 1990, n. 161, concernente il prelevamento della somma di lire 1.500.000.000 dal fondo di riserva per spese impreviste - Cap. 03010 - dello stato di previsione della spesa dell'Assessorato regionale della programmazione, bilancio ed assetto del territorio, a favore del Cap. 05043 recante "Spese per la difesa dagli incendi boschivi" dello stato di previsione della spesa dell'Assessorato regionale della difesa dell'ambiente del bilancio regionale per l'anno finanziario 1990.
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
