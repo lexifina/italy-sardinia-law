@@ -1,0 +1,4 @@
+Articolo unico
+Ai sensi e per gli effetti dell'articolo 42 del regio decreto 18 novembre 1923, n. 2440, dell'articolo 136 del regolamento approvato con regio decreto 23 maggio 1924, n. 827, nonchè dell'articolo 9 della legge regionale 27 gennaio 1977, n. 10, è convalidato il decreto del Presidente della Giunta regionale n. 204, del 30 dicembre 1977 concernente il prelevamento della somma di L. 100.000.000 dal fondo di riserva per spese impreviste a favore del capitolo 15301 dello stato di previsione della spesa del bilancio della Regione per l'anno 1977, recante: "Spese per interventi d'urgenza per l'esecuzione della lotta contro le malattie infettive e per la divulgazione nel pubblico delle norme igieniche da osservare (L.R. 11 giugno 1956, n. 18)".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
