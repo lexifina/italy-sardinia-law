@@ -1,0 +1,9 @@
+# Legge regionale 10 dicembre 1986, n. 70 - Incremento dei fondi di riserva per spese obbligatorie e d'ordine (Cap. 03009) e per spese impreviste (Cap. 03010) del bilancio della Regione per l'anno finanziario 1986
+
+L.R. 70/1986 · 1 versions, from 2026-10-30 (latest in force: 2026-10-30) · <https://leggiregionali.regione.sardegna.it/1986-12-10/70>
+
+| Provision | File | Changes | Last changed |
+| --- | --- | ---: | --- |
+| Art. 1 | [art-001.md](art-001.md) | 0 |  |
+| Art. 2 | [art-002.md](art-002.md) | 0 |  |
+| Intestazione | [intestazione.md](intestazione.md) | 0 |  |
