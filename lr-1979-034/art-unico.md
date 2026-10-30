@@ -1,0 +1,4 @@
+Articolo unico
+Ai sensi e per gli effetti dell'articolo 42 del regio decreto 18 novembre 1923, n. 2440, dell'articolo 136 del regolamento approvato con regio decreto 23 maggio 1924, n. 827, nonché dell'articolo 12 della legge regionale 10 febbraio 1978, n. 2, è convalidato il decreto del Presidente della Giunta regionale n. 118 del 16 ottobre 1978, concernente il prelevamento della somma di lire 35.000.000 dal fondo di riserva per spese impreviste a favore del capitolo 02155 dello stato di previsione della spesa dell'Assessorato degli affari generali, personale e riforma della Regione del bilancio della Regione per l'anno 1978, recante: "Spese in conto capitale eventuali e varie".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
