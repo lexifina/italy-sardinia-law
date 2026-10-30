@@ -1,0 +1,4 @@
+Articolo unico
+Ai sensi e per gli effetti dell'articolo 9 della legge 5 agosto 1978, n. 468 e dell'articolo 10 della legge regionale 24 aprile 1980, n. 6, è convalidato il decreto del Presidente della Giunta regionale n. 72 del 5 agosto 1980, concernente il prelevamento della somma di lire 25.000.000 dal fondo di riserva per spese impreviste (cap. 03010) a favore del capitolo 02057 dello stato di previsione della spesa dell'Assessorato degli affari generali, personale e riforma della Regione del bilancio della Regione per l'anno finanziario 1980, recante: "Indennità e rimborsi di spese di trasporto al personale addetto all'attività di formazione professionale per missioni in territorio nazionale (L.R. 17 agosto 1978, n. 51, e L.R. 5 dicembre 1979, n. 62)".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
