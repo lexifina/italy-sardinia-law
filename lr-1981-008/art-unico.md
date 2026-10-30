@@ -1,0 +1,7 @@
+Articolo unico
+Per l'anno formativo 1980-1981, gli obiettivi generali della formazione professionale contenuti nei piani pluriennali previsti dall'articolo 11 della legge regionale 1° giugno 1979, n. 47, sono ﬁssati da una nota di speciﬁcazione entro il 31 gennaio 1981, che stabilisce i bisogni formativi connessi con gli indirizzi e le direttive per l'elaborazione del programma di sviluppo economico e sociale 1980- 82, approvati il 6 febbraio 1980 dal Consiglio regionale, secondo le procedure contenute nella legge regionale 1° agosto 1975, n. 33.
+Per l'anno formativo di cui al comma precedente, le procedure previste dalla citata legge regionale n. 47 del 1979, operano senza il rispetto dei termini per esse previsti.
+Fino all'approvazione del piano annuale di formazione professionale 1980-1981, l'Amministrazione regionale è autorizzata a stipulare con gli enti e gli organismi di cui agli articoli 16, 17 e 18 della legge regionale 1° giugno 1979, n. 47, convenzioni per l'affidamento in gestione a decorrere dalla data di effettivo inizio:
+a) delle attività formative di prosecuzione dei cicli già approvati negli anni precedenti;
+b) delle attività ﬁnalizzate incluse in progetti presentati al Fondo sociale europeo sempreché già ammesse al contributo comunitario con apposita decisione.
+Per il ﬁnanziamento delle attività di cui al punto a) del comma precedente, vengono applicati i parametri in vigore per l'anno formativo 1979-1980, salvo conguaglio ad avvenuta approvazione di parametri relativi all'anno 1980-1981.
