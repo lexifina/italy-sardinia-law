@@ -1,0 +1,4 @@
+Articolo Unico
+Ai sensi e per gli effetti dell'articolo 27, ultimo comma, della legge regionale 5 maggio 1983, n. 11, è convalidato il decreto del Presidente della Giunta regionale 19 agosto 1986, n. 90, concernente il prelevamento della somma di L. 1.650.000.000 dal fondo di riserva per spese impreviste - capitolo 03010 - dello stato di previsione della spesa dell'Assessorato della programmazione, bilancio ed assetto del territorio, a favore del capitolo 05063 recante "Spese per l'attuazione, a totale carico dell'Amministrazione regionale, degli interventi fitosanitari previsti dalla legge 18 giugno 1931, n. 987" dello stato di previsione della spesa dell'Assessorato della difesa dell'ambiente del bilancio regionale per l'anno finanziario 1986.
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
