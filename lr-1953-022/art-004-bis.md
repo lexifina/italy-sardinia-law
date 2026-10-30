@@ -1,0 +1,2 @@
+Art. 4 bis
+È autorizzata la concessione di concorsi per l'abbattimento dei tassi di interesse applicati ai prestiti concessi da istituiti e aziende di credito con la garanzia dei consorzi fidi di cui all'articolo precedente, nella misura di tre punti (cap. 09042). Detti concorsi sono erogati tramite gli istituti o aziende di credito concedenti con i quali l'Amministrazione regionale stipulerà apposita convenzione.

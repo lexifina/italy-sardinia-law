@@ -1,0 +1,2 @@
+Art. 10 bis
+Le disposizioni di cui agli articoli precedenti sono estese alle imprese di navigazione di preminente interesse regionale, con sede legale e domicilio fiscale nonché porto d'armamento nel territorio della Regione sarda, aventi per oggetto della propria attività la gestione di servizi di navigazione di particolare importanza per i traffici tra i porti sardi e tra la Sardegna e gli scali fuori dell'Isola, anche se già esistenti alla data di entrata in vigore della presente legge.
