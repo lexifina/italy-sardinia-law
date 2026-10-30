@@ -1,0 +1,2 @@
+Art. 2 bis
+Ai Consiglieri regionali, che si trovano nelle condizioni di cui al primo comma dell'articolo precedente e che non ottemperino alle disposizioni in esso contenute o che in ogni caso continuino a percepire stipendio, paga o retribuzione dalla amministrazione di appartenenza, sarà trattenuta una quota dell'indennità di cui al precedente articolo 1 pari allo stipendio, paga o retribuzione percepiti dall'amministrazione di cui sono dipendenti, al netto di ogni ritenuta erariale e previdenziale.

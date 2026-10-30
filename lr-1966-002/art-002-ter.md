@@ -1,0 +1,3 @@
+Art. 2 ter
+Con l'indennità di cui al precedente articolo 1 non possono cumularsi assegni o indennità, medaglie o gettoni di presenza comunque derivanti da incarichi di carattere amministrativo, conferiti dallo Stato, dalla Regione, da enti pubblici, da banche di diritto pubblico, da enti privati concessionari di pubblici servizi, da enti privati con azionariato statale o regionale e da enti privati aventi rapporti di affari con lo Stato, le Regioni, le Province ed i Comuni.
+Restano in ogni caso escluse dal divieto di cumulo le indennità per partecipazione a commissioni giudicatrici di concorso, a missioni, a commissioni di studio e a commissioni di inchiesta.
