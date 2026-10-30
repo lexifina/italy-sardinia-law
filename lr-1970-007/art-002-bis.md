@@ -1,0 +1,2 @@
+Art. 2 bis
+Al personale degli uffici del Ministero dell'agricoltura e foreste passati alle dipendenze dell'Amministrazione regionale, spettano a partire dal 1º agosto 1970 e fino alla data dell'effettivo inserimento del medesimo negli organici dell'Amministrazione predetta, le indennità di trasferta previste per i dipendenti regionali dall'articolo 10 della legge regionale 30 luglio 1970, n. 6, nonché un premio in deroga annuale non superiore alla tredicesima mensilità.
