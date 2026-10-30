@@ -1,0 +1,3 @@
+Art. 17 bis
+(Indennità a favore degli operatori del settore delle feste e sagre paesane)
+1. In considerazione del protrarsi della sospensione o riduzione delle attività lavorative a causa dell'emergenza sanitaria da Covid-19 è autorizzata, per l'anno 2020, la spesa nel limite complessivo di euro 4.606.000 per la concessione, in conformità alle disposizioni statali, di un'indennità una tantum a compensazione del mancato reddito, a favore dei lavoratori autonomi o titolari di partita IVA, operanti nell'ambito delle feste e delle sagre paesane, quali venditori ambulanti e giostrai. L'indennità è quantificata in euro 7.000 per ciascun beneficiario (missione 15 - programma 03 - titolo 1).
