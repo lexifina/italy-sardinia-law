@@ -1,0 +1,7 @@
+Art. 15 bis
+Trasferimento dell'attività
+1. Il trasferimento dell'attività comporta a favore dell'avente causa il trasferimento del titolo abilitativo all'esercizio dell'attività fino alla scadenza originaria dello stesso.
+2. L'avente causa, salvo quanto stabilito dal comma 5, deve possedere tutti i requisiti ai quali è subordinato l'accesso e l'esercizio dell'attività.
+3. Il titolo abilitativo assegnato in base a una riserva a favore di particolari categorie, salvo quanto stabilito dal comma 5, può essere trasferito esclusivamente in capo ad un soggetto appartenente alla medesima categoria.
+[4. La cessione dell'attività per atto tra vivi è comunicata dal cessionario al comune territorialmente competente entro sessanta giorni e non può essere effettuata, ad eccezione dei casi di cui al comma 5, prima che siano decorsi tre anni dalla data del rilascio del titolo abilitativo all'esercizio dell'attività stessa.]
+5. La successione nell'attività per causa di morte è comunicata, entro tre mesi, al comune territorialmente competente dal successore il quale, anche se privo dei requisiti di cui all'articolo 2 della presente legge o di quelli ulteriori eventualmente richiesti per l'accesso e l'esercizio dell'attività, può proseguire in via provvisoria l'esercizio dell'attività per non più di un anno dalla data dell'acquisto. Decorso l'anno, il mancato possesso dei requisiti richiesti determina la decadenza dell'autorizzazione e delle concessioni sui posteggi.
