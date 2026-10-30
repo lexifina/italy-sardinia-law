@@ -1,0 +1,4 @@
+Articolo unico
+Ai sensi e per gli effetti dell'articolo 27, ultimo comma, della legge regionale 5 maggio 1983, n. 11, è convalidato il decreto del Presidente della Giunta regionale 31 dicembre 1986, n. 209, concernente il prelevamento della somma di lire 600.000.000 dal fondo di riserva per spese impreviste - capitolo 03010 - dello stato di previsione della spesa dell'Assessorato della programmazione, bilancio ed assetto del territorio, a favore del capitolo 12089 recante "Saldo di impegni di esercizio decorsi relativi a contribuiti per le spese di viaggio e permanenza fuori del territorio nazionale di malati appartenenti a famiglie che non possono affrontare le spese stesse e di eventuali accompagnatori se ritenuti indispensabili per la loro assistenza".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
