@@ -1,0 +1,4 @@
+Articolo unico
+Ai sensi e per gli effetti dell'articolo 42 del regio decreto 18 novembre 1923, n. 2440, dell'articolo 136 del Regolamento approvato con regio decreto 23-5-1924, n. 827, nonchè dell'articolo 9 della legge regionale 27 gennaio 1977, n. 10, è convalidato il decreto del Presidente della Giunta regionale n. 131 del 23 settembre 1977, concernente il prelevamento della somma di lire 90.000.000 dal fondo di riserva per spese impreviste a favore del capitolo 12606 dello stato di previsione della spesa del bilancio della Regione per l'anno finanziario 1977, recante: "Premi per l'effettiva collaborazione prestata nei servizi di sicurezza anticendi nelle campagne (art. 1, lett. b), L.R. 21 luglio 1954, n. 28) e relativi contributi per l'assicurazione contro gli infortuni sul lavoro".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
