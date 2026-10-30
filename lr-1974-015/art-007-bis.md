@@ -1,0 +1,2 @@
+Art. 7 bis
+[Il compenso e l'indennità di cui al precedente articolo 7 spettano anche ai componenti e ai segretari del comitato tecnico regionale costituito presso gli uffici della Cassa per il credito alle imprese artigiane, con il compito di deliberare la concessione di contributi nel pagamento degli interessi sulle operazioni di credito a favore delle imprese artigiane, effettuate dagli istituti ed aziende di credito di cui allo articolo 35 della legge 25 luglio 1952, n. 494, e successive modificazioni ]
