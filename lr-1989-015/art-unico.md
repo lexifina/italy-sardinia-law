@@ -1,0 +1,4 @@
+Articolo unico
+1. Ai sensi e per gli effetti dell'articolo 27, ultimo comma della legge regionale 5 maggio 1983, n. 11, è convalidato il decreto del Presidente della Giunta regionale del 218 ottobre 1988, n. 164, concernente il prelevamento della somma di lire 150.000.000 dal fondo di riserva per spese impreviste - capitolo 03010 - dello stato di previsione della spesa dell'Assessorato della programmazione, bilancio e assetto del territorio, a favore del capitolo 01009 recante "Fondo a disposizione del Presidente della Giunta e degli Assessori per contributi e sussidi per assistenza e beneficenza" dello stato di previsione della spesa della Presidenza della Giunta del bilancio regionale per l'anno finanziario 1988.
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
