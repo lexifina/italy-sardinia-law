@@ -1,0 +1,2 @@
+Art. 4 bis
+[Gli Ispettorati dell'agricoltura, in conformità alle direttive di volta in volta impartite dall'Assessorato regionale all'agricoltura e foreste, possono avvalersi sia per l'accertamento dei danni, sia per la istruttoria delle domande di prestiti, contributi e sovvenzioni, sia per la stessa erogazione delle provvidenze concesse, dell'Ente di sviluppo e delle Commissioni comunali per l'agricoltura ]
