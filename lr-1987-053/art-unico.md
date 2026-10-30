@@ -1,0 +1,4 @@
+Articolo unico
+Ai sensi e per gli effetti dell'articolo 27, ultimo comma, della legge regionale 5 maggio 1983, n. 11, è convalidato il decreto del Presidente della Giunta regionale 15 ottobre 1986, n. 104, concernente il prelevamento della somma di lire 200.000.000 dal fondo di riserva per spese impreviste - cap. 03010 - dello stato di previsione della spesa dell'Assessorato della programmazione, bilancio ed assetto del territorio, a favore del capitolo 04063 recante "Spese per la pubblicazione di comunicati stampa di interesse regionale su quotidiani locali e nazionali" dello stato di previsione della spesa dell'assessorato degli enti locali, finanze ed urbanistica del bilancio regionale per l'anno finanziario 1986.
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
