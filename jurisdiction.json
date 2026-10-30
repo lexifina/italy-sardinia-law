@@ -1,0 +1,11 @@
+{
+  "path": "it-88",
+  "code": "IT-88",
+  "name": "Sardinia",
+  "level": "region",
+  "parent": "it",
+  "repo": "https://github.com/lexifina/italy-sardinia-law",
+  "build": "built: statute and regional laws (1938 acts, 1938 versions) from the Banca dati giuridica of the Regione Autonoma della Sardegna (current text only)",
+  "language": "it",
+  "sources": 1
+}
