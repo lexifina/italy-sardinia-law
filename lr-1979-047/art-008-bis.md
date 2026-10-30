@@ -1,0 +1,6 @@
+Art. 8 bis
+Implementazione dei sistemi di analisi preventiva del mercato del lavoro e previsioni
+sociooccupazionali
+1. La Regione, nell'ottica di orientare la programmazione e la definizione delle attività formative, promuove e realizza sistemi di analisi preventivi del mercato del lavoro, al fine di analizzare i fabbisogni occupazionali e le competenze professionali richieste dai datori di lavoro nonché i fabbisogni formativi delle persone, in collaborazione con le rappresentanze delle imprese e dei lavoratori, nonché con altri soggetti istituzionali.
+2. Per le finalità previste nel comma 1, la programmazione dell'offerta formativa regionale è progressivamente orientata all'implementazione di metodologie e strumenti più avanzati per l'analisi del mercato del lavoro (labour market intelligence) anche attraverso l'elaborazione di stime sui risultati socio-occupazionali derivanti dall'attività formativa.
+3. Gli esiti delle indagini sui fenomeni e sull'andamento del mercato del lavoro regionale costituiscono strumento efficace per introdurre specifiche misure di accompagnamento che agevolano l'accesso ai percorsi formativi da parte dei soggetti più vulnerabili e a rischio di esclusione dal mercato del lavoro.
