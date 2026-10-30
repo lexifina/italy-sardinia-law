@@ -1,0 +1,4 @@
+Articolo unico
+Ai sensi e per gli effetti dell'articolo 42 del regio decreto 18 novembre 1923, n. 2440, dell'articolo 136 del regolamento approvato con regio decreto 23 maggio 1924, n. 827, nonché dell'articolo 9 della legge regionale 27 gennaio 1977, n. 4, è convalidato il decreto del Presidente della Giunta Regionale n. 53 del 15 marzo 1977 concernente il prelevamento della somma di lire 30.000.000 dal fondo di riserva per spese impreviste a favore del capitolo 11175 dello stato di previsione della spesa del bilancio della Regione per l'anno 1977 "Fondo a disposizione del Presidente della Giunta e degli Assessori per contributi e sussidi per assistenza e beneficenza".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
