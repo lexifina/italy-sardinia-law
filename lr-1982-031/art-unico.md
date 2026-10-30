@@ -1,0 +1,4 @@
+Articolo unico
+Ai sensi e per gli effetti dell'articolo 9 della legge 5 agosto 1978, n. 468, e dell'articolo 10 della legge regionale 24 aprile 1980, n. 6, è convalidato il decreto del Presidente della Giunta regionale 12 novembre 1980, n. 96 concernente il prelevamento della somma di lire 700.000 dal fondo di riserva per spese impreviste (capitolo 03010) a favore del capitolo 02098 dello stato di previsione della spesa dell'Assessorato degli affari generali, personale e riforma della Regione del bilancio della Regione per l'anno finanziario 1980, recante: "Rimborso delle spese di difesa sostenute dai dipendenti regionali dichiarati esenti da responsabilità nei giudizi promossi in relazione alla loro qualità di impiegati".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
