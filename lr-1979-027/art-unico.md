@@ -1,0 +1,4 @@
+Articolo unico
+Ai sensi e per gli effetti dell'articolo 42 del regio decreto 18 novembre 1923, n. 2440, dell'articolo 136 del regolamento approvato con regio decreto 23 maggio 1924, n. 827, nonchè dell'articolo 12 della legge regionale 10 febbraio 1978, n. 2, è convalidato il decreto del Presidente della Giunta regionale n. 43 del 14 giugno 1978, concernente il prelevamento della somma di lire 35.000.000 dal fondo di riserva per spese impreviste a favore del capitolo 01009 dello stato di previsione della spesa della Presidenza della Giunta del bilancio della Regione per l'anno 1978, recante: "Fondo a disposizione del Presidente della Giunta e degli Assessori per contributi e sussidi per assistenza e beneficienza".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spettidi osservarla e di farla osservare come legge della Regione.
