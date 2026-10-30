@@ -1,0 +1,5 @@
+Art. 37 quinquies
+(Dipartimento regionale della salute mentale e delle dipendenze (DRSMD))
+l. È istituito il Dipartimento regionale della salute mentale e delle dipendenze (DRSMD) composto dai dipartimenti di salute mentale e delle dipendenze delle aziende socio-sanitarie locali e diretto dal direttore del CRSMD.
+2. Il DRSMD, nel rispetto di apposite linee-guida approvate con deliberazione della Giunta regionale, su proposta dell'Assessore regionale competente in materia di sanità e sentito il direttore del DRSMD, che disciplina le modalità di funzionamento, assicura il coordinamento funzionale degli interventi nei territori regionali e garantisce l'applicazione dei programmi definiti dal CRSMD, delle procedure e dei protocolli organizzativi e gestionali adottati nell'ambito dello stesso DRSMD o con specifici provvedimenti regionali.
+3. Il DRSMD opera secondo un modello collaborativo, ricercando le soluzioni organizzative che prevedono la condivisione delle risorse professionali e tecnologiche nell'ambito di programmi condotti secondo aggregazioni funzionali, anche di area vasta.

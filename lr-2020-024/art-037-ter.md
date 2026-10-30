@@ -1,0 +1,5 @@
+Art. 37 ter
+(Dipartimento regionale di prevenzione (DRP))
+l. È istituito il Dipartimento regionale di prevenzione (DRP) composto dai dipartimenti di prevenzione delle aziende socio-sanitarie locali e diretto dal direttore del CRPPS.
+2. Il DRP, nel rispetto di apposite linee-guida approvate con deliberazione della Giunta regionale, su proposta dell'Assessore regionale competente in materia di sanità e sentito il direttore del DRP, che disciplina le modalità di funzionamento, assicura il coordinamento funzionale degli interventi nei territori regionali e garantisce l'applicazione dei programmi definiti dal CRPPS, delle procedure e dei protocolli organizzativi e gestionali adottati nell'ambito dello stesso DRP o con specifici provvedimenti regionali.
+3. Il DRP opera secondo un modello collaborativo, ricercando le soluzioni organizzative che prevedano la condivisione delle risorse professionali e tecnologiche nell'ambito di programmi condotti secondo aggregazioni funzionali, anche di area vasta.
