@@ -1,0 +1,3 @@
+Art. 28 bis
+(Accordi di programma di particolare interesse economico e sociale)
+1. Qualora l'accordo di programma, come definito nel precedente articolo 28, presupponga significative iniziative economiche, insistenti in ambiti di cospicua rilevanza comunale e sovracomunale, caratterizzate da un programma di investimenti produttivi a lungo termine, non solo nel settore edilizio, diretti allo sviluppo e alla valorizzazione delle risorse socio- economiche della Sardegna con particolare ricaduta economica e occupativa nell'area- programma in cui sono inserite, tale da determinare effetti sulla strumentazione programmatoria regionale, esso è approvato con apposito provvedimento di legge

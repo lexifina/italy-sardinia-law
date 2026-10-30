@@ -1,0 +1,7 @@
+Art. 34 bis
+(Disposizioni di salvaguardia delle zone umide)
+1. L'articolo 17, comma 3, delle norme tecniche di attuazione del piano paesaggistico regionale si interpreta nel senso che sono beni paesaggistici le zone umide di cui alla lettera g), come individuate e rappresentate nella cartografia del piano paesaggistico regionale nella loro dimensione spaziale. Il vincolo paesaggistico si estende, oltre il perimetro individuato, alla fascia dei 300 metri dalla linea di battigia degli specchi acquei interni alla zona umida e rappresentati nella cartografia ufficiale regionale.
+2. Le aree interne al vincolo paesaggistico di cui al comma 1 sono oggetto di conservazione e tutela dei rispettivi caratteri naturalistici, ambientali, morfologici e paesaggistici e ad esse si applicano le previsioni dell'articolo 18, comma 1, delle norme tecniche di attuazione del piano paesaggistico regionale.
+3. Sono escluse dal vincolo di cui al comma 1 le aree ricadenti nelle zone omogenee A, B, e D, nonché nelle zone C e G contermini agli abitati, tutte come individuate negli strumenti urbanistici vigenti in base al decreto assessoriale 20 dicembre 1983, n. 2266/U, nonché nei piani attuativi con convenzione vigente o attuata, anche parzialmente, alla data di adozione del piano paesaggistico regionale, anche se successivamente scaduta nonché nei piani attuativi pubblici vigenti alla data di adozione del piano paesaggistico regionale anche se decaduti o attuati parzialmente.
+Titolo VII
+NORME REGIONALI DI ATTUAZIONE DI DISPOSIZIONI STATALI
