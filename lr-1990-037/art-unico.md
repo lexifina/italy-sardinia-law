@@ -1,0 +1,4 @@
+Articolo unico
+1. Ai sensi e per gli effetti dell'articolo 27, ultimo comma, della legge regionale 5 maggio 1983, n. 11, è convalidato il decreto del Presidente della Giunta regionale 18 dicembre 1989, n. 165, concernente il prelevamento della somma di L. 60.000.000 dal fondo di riserva per spese impreviste - capitolo 03010 - dello stato di previsione della spesa dell'Assessorato della programmazione, bilancio ed assetto del territorio, a favore del capitolo 12204 relativo a "Assegni di sostentamento ai suinicoltori i cui allevamenti siano stati colpiti dalla peste suina africana" dello stato di previsione della spesa dell'Assessorato dell'igiene e sanità e assistenza sociale, del bilancio regionale per l'anno finanziario 1989.
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
