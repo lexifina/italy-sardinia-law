@@ -1,0 +1,4 @@
+Articolo unico
+Ai sensi e per gli effetti dell'articolo 9 della legge 5 agosto 1978, n. 468, e dell'articolo 9 della legge regionale 26 aprile 1982, n. 9, è convalidato il decreto del Presidente della Giunta regionale n. 52 del 1.o luglio 1982, concernente il prelevamento della somma di lire 185.000.000 dal fondo di riserva per spese impreviste (cap. 03010), dello stato di previsione della spesa dell'Assessorato della programmazione, bilancio e assetto del territorio, a favore del capitolo 04024 dello stato di previsione della spesa dell'Assessorato degli enti locali, finanze ed urbanistica del bilancio della Regione per l'anno finanziario 1982, recante: "Spese per la sistemazione, l'adattamento, la manutenzione di locali e di impianti idrici, elettrici, telefonici, di riscaldamento e per il gas".
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
