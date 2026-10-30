@@ -1,0 +1,3 @@
+Art. 20 ter
+[1. La Cancelleria della Corte d'Appello, accertata l'identità personale del depositante, forma il verbale di ricevuta degli atti, di cui una copia è consegnata immediatamente al presentatore.
+2. Nel medesimo verbale, oltre all'indicazione della lista dei candidati presentata e delle designazioni del contrassegno e dei delegati, è annotato il numero d'ordine progressivo attribuito dalla Cancelleria stessa a ciascuna lista secondo l'ordine di presentazione.]

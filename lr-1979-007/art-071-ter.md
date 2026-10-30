@@ -1,0 +1,5 @@
+Art. 71 ter
+[1. Compiute le operazioni di cui al precedente articolo, l'Ufficio centrale circoscrizionale, con l'assistenza degli esperti:
+a) determina la cifra elettorale di ciascuna lista. La cifra elettorale di lista è data dalla somma dei voti di lista validi, compresi quelli assegnati ai sensi del numero 2) del primo comma dell'articolo 71 bis, ottenuti da ciascuna lista nelle singole sezioni della circoscrizione;
+b) determina la cifra individuale di ogni candidato. La cifra individuale di ogni candidato è data dalla somma dei voti di preferenza validi, compresi quelli assegnati ai sensi del numero 2) del primo comma dell'articolo 71 bis, ottenuti da ciascun candidato nelle singole sezioni della circoscrizione;
+c) comunica all'Ufficio centrale regionale, a mezzo di estratto del verbale, la cifra elettorale di ciascuna lista e la cifra individuale di ogni candidato; l'estratto del verbale di cui alla presente lettera viene trasmesso all'Ufficio centrale regionale in plico sigillato, mediante corriere speciale. ]
