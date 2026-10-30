@@ -1,0 +1,13 @@
+Art. 32 bis
+(Interventi di recupero dei seminterrati, dei piani pilotis e dei locali al piano terra)
+1. Ai fini del presente articolo si definiscono:
+a) seminterrati: i piani siti al piede dell'edificio e parzialmente interrati, quando la superficie delle pareti perimetrali comprese al di sotto della linea di terra è superiore al 50 per cento della superficie totale delle stesse pareti perimetrali;
+b) piani pilotis: le superfici aperte, a piano terra o piano rialzato, delimitate da colonne portanti, la cui estensione complessiva è non inferiore ai due terzi della superficie coperta;
+c) piano terra: piano completamente fuori terra, posto allo stesso livello del piano di campagna o di sistemazione definitiva del terreno.
+2. Negli immobili destinati ad uso abitativo sono consentiti gli interventi di riuso dei seminterrati, piani pilotis e locali al piano terra esistenti con l'obiettivo di contenere il consumo di nuovo territorio e di favorire la messa in opera di interventi tecnologici per il contenimento del consumi energetici.
+3. Per i piani pilotis è ammesso il riuso solamente se esteso all'intero piano e purché siano comunque rispettate le superfici minime destinate a parcheggio; in alternativa, è sempre possibile la monetizzazione delle superfici di parcheggio non rinvenibili all'interno del lotto.
+4. Il recupero dei seminterrati è consentito ad uso residenziale o direzionale, commerciale ed a condizione che abbiano, alla data di entrata in vigore della presente legge, un'altezza minima non inferiore a metri 2,40, con una tolleranza massima del 2 per cento, previo ottenimento di idoneo titolo abilitativo e nel rispetto delle seguenti condizioni:
+a) le aperture per la ventilazione naturale non siano inferiori a 1/8 della superficie utile, oppure si preveda la realizzazione di un impianto di ventilazione meccanica per un ricambio d'aria almeno pari a quello richiesto per la ventilazione naturale;
+b) vi siano adeguati livelli di illuminazione, raggiungibili anche mediante sistemi artificiali.
+5. Il recupero dei porticati e dei locali a piano terra o piano rialzato è consentito ad uso direzionale, commerciale, socio-sanitario e residenziale a condizione che rispettino un'altezza minima interna di 2,40 metri.
+6. Il recupero a fini abitativi dei piani e locali di cui al presente articolo è vietato nelle aree dichiarate, ai sensi della legge 18 maggio 1989, n. 183 (Norme per il riassetto organizzativo e funzionale della difesa del suolo), di pericolosità idraulica elevata o molto elevata (Hi3 o Hi4) ovvero in aree di pericolosità da frana elevata o molto elevata (Hg3 o Hg4).

@@ -1,0 +1,4 @@
+Art. 29 bis
+(Frazionamento di unità immobiliari a seguito degli interventi di incremento volumetrico di
+cui alla legge regionale n. 4 del 2009)
+1. L'unità immobiliare a uso residenziale commerciale o artigianale risultante da incremento volumetrico previsto dalla legge regionale 23 ottobre 2009, n. 4 (Disposizioni straordinarie per il sostegno dell'economia mediante il rilancio del settore edilizio e per la promozione di interventi e programmi di valenza strategica per lo sviluppo), , può essere frazionata solo se la più piccola delle unità derivate ha una superficie lorda superiore a 50 metri quadri. Negli altri casi l'incremento volumetrico non può essere utilizzato per generare ulteriori unità immobiliari e non può essere alienato separatamente dall'unità che lo ha generato. Il vincolo di non alienazione ha durata decennale ed è trascritto nei registri immobiliari.
