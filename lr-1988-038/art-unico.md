@@ -1,0 +1,4 @@
+Articolo unico
+1. Ai sensi e per gli effetti dell'articolo 27, ultimo comma, della legge regionale 5 maggio 1983, n. 11, è convalidato il decreto del Presidente della Giunta Regionale 21 dicembre 1987, n. 146, concernente il prelevamento della somma di lire 160.000.000 dal fondo di riserva per spese impreviste - Cap. 03010 - dello stato di previsione della spesa dell'Assessorato della programmazione, bilancio ed assetto del territorio, a favore del Capitolo 04061, recante "Spese varie di funzionamento degli uffici centrali dell'Amministrazione regionale non previste in altri capitoli di spesa" dello stato di previsione della spesa dell'Assessorato degli enti locali, finanze ed urbanistica del bilancio regionale per l'anno finanziario 1987.
+La presente legge sarà pubblicata nel Bollettino Ufficiale della Regione.
+E' fatto obbligo a chiunque spetti di osservarla e di farla osservare come legge della Regione.
