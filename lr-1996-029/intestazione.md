@@ -1,0 +1,2 @@
+L.R. 22 luglio 1996, n. 29 .
+Proroga dei termini per l'utilizzo dei fondi di cui alle legge regionale 6 settembre 1976, n. 45 (Finanziamenti regionali alle province, ai comuni ed ai loro consorzi, agli organismi comprensoriali per l'attuazione di programmi di intervento nel settore delle opere e degli impianti di interesse pubblico) e alla legge regionale 22 aprile 1987, n. 24 (Norme di sempliﬁcazione e snellimento delle procedure e disposizioni varie in materia di lavori pubblici).
